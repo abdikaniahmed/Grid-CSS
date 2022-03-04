@@ -1,2 +1,7 @@
 # Grid-CSS
-Created with CodeSandbox
+
+waxaa sameeyey challenges kan anoo xirfadayda
+tiyaabinaya
+
+by
+Abdikani Muhumed
